@@ -30,7 +30,7 @@ Jednym z większych problemów było to, że nie uwzględniłem, że można był
 
 ## Ulubiony mem
 
-Trudno stwierdzić, ale może jakieś reakcje, z którymi by był jakiś tekst ironiczny.
+Trudno stwierdzić, ale może jakieś reakcje, z którymi by był jakiś tekst ironiczny (a z nowych brainrot ale to są filmiki głownie to tam).
 
 ![Mem](memes/meme1.JPG)
 
